@@ -1,4 +1,4 @@
-# 
+# Enhance Adobe Photoshop for macOS with Adobe Photoshop for macOS advanced Preset - UI themes and asset management, the #1 preset. Includes UI themes and asset management for a
 
 
 
